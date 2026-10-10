@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Saravanapandi
+![FX Golden Eagle Banner](golden-eagle-banner.png)# 👋 Hi, I'm Saravanapandi
 
 ### 🌱 Curious Mind | Lifelong Learner | Future Builder
 
