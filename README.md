@@ -1,4 +1,4 @@
-![FX Golden Eagle Banner](Golden-Eagle-Mountain-Brand-Banner.png)# 👋 Hi, I'm Saravanapandi
+![FX Golden Eagle Banner]Golden Eagle Mountain Brand Banner.png# 👋 Hi, I'm Saravanapandi
 
 ### 🌱 Curious Mind | Lifelong Learner | Future Builder
 
